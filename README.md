@@ -1,16 +1,15 @@
-## Hi there 👋
+<!-- SECTION DIVIDER -->
+<p align="center">
+  <img src="https://i.supaimg.com/e450c120-0942-40a1-a7a5-99722c5744ae.png" width="80%" />
+</p>
 
-<!--
-**ohmygodduh/ohmygodduh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<!-- BACKGROUND -->
+<p align="center">
+  <img src="https://i.supaimg.com/e69baa5f-c8a1-4505-b73c-b4d87272becf.png" width="100%" />
+</p>
 
-Here are some ideas to get you started:
+<!-- SECTION DIVIDER -->
+<p align="center">
+  <img src="https://i.supaimg.com/e450c120-0942-40a1-a7a5-99722c5744ae.png" width="80%" />
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
