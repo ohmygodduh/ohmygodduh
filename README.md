@@ -2,7 +2,7 @@
   <tr>
     <th>
         +More info here+
-      Hihi im Kay but you can always refer to my by my skins name, im on ponytown for long periods of time either with friends or offtab alone 😗 i have low confidence so i usually don't come up to people i dont know unless they do, i appreciate people cuddling with me whenever I'm alone, feel free to afk with me as if I'm at home im usually on pt, i encourage you to hang out with me if your offtab/doing other stuff!! If i am online, feel free to talk to me, altough i might not be able to keep the convo going for long 😓 
+      Hihi im Kay but you can always refer to me by my skins name, im on ponytown for long periods of time either with friends or offtab alone 😗 i have low confidence so i usually don't come up to people i dont know unless they do, i appreciate people cuddling with me whenever I'm alone, feel free to afk with me as if I'm at home im usually on pt, i encourage you to hang out with me if your offtab/doing other stuff!! If i am online, feel free to talk to me, altough i might not be able to keep the convo going for long 😓 
     </th>
   </tr>
 </table>
