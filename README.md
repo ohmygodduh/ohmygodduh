@@ -23,3 +23,13 @@
   <img src="https://i.supaimg.com/e450c120-0942-40a1-a7a5-99722c5744ae.png" width="80%" />
 </p>
 
+<table>
+  <tr>
+    <th>
+        +boundaries explained+
+       Ships: please do not approach me for the sake of a ship if you don't know me, if we are close/are already i can freely make an exception to this! 
+      Jokes about Wars: this depends, please do not joke about the suffering of others/specific people related to wars towards me 😓 
+      I don't have many boundaries, so please be respectful of the two listed <3
+    </th>
+  </tr>
+</table>
