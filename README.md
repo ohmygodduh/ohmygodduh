@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.supaimg.com/e69baa5f-c8a1-4505-b73c-b4d87272becf.png" width="100%" />
+  <img src="https://i.supaimg.com/fed24790-594b-45a4-8baf-4d44068fb1fd/53f2d167-528b-4ff0-869e-840f6f3c46fa.png" width="100%" />
 </p>
 
 <p align="center">
