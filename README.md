@@ -5,7 +5,7 @@
   <tr>
     <th>
                   $\color{#B5B5B5}{+info here+}$
-      $\color{#B5B5B5}{Hihi~im~Kay~but~you~can~always~refer~to~me~by~my~skins~name,}$ $\color{#B5B5B5}{im~on~ponytown~for~long~periods~of~time~either~with~friends~or~offtab~alone~😗 }$ $\color{#B5B5B5}{~i~have~low~confidence~so~i~usually~don't~come~up~to~people~i~dont~know~unless~they~do, }$ $\color{#B5B5B5}{~i~appreciate~people~cuddling~with~me~whenever~I'm~alone,~feel~free~to~afk~with~me~as~if~I'm~at~home~im~usually~on~pt,}$ $\color{#B5B5B5}{~i~encourage~you~to~hang~out~with~me~if~your~offtab/doing~other~stuff!! }$ $\color{#B5B5B5}{~If~i~am~online,~feel~free~to~talk~to~me,~altough~i~might~not~be~able~to~keep~the~convo~going~for~long~😓}$
+      $\color{#B5B5B5}{Hihi~im~Kay~but~you~can~always~refer~to~me~by~my~skins~name,}$ $\color{#9C9C9C}{im~on~ponytown~for~long~periods~of~time~either~with~friends~or~offtab~alone~😗 }$ $\color{#797979}{~i~have~low~confidence~so~i~usually~don't~come~up~to~people~i~dont~know~unless~they~do, }$ $\color{#575757}{~i~appreciate~people~cuddling~with~me~whenever~I'm~alone,~feel~free~to~afk~with~me~as~if~I'm~at~home~im~usually~on~pt,}$ $\color{#797979}{~i~encourage~you~to~hang~out~with~me~if~your~offtab/doing~other~stuff!! }$ $\color{#9C9C9C}{~If~i~am~online,~feel~free~to~talk~to~me,~altough~i~might~not~be~able~to~keep~the~convo~going~for~long~😓}$
     </th>
   </tr>
 </table>
@@ -15,10 +15,8 @@
   <tr>
     <th>
         $\color{#B5B5B5}{+boundaries+}$
-       $\color{#B5B5B5}{Ships:~please~do~not~approach~me~for~the~sake~of~a~ship~if~you~don't~know~me, }$ $\color{#B5B5B5}{~if~we~are~close/are~already~friends~i~can~freely~make~an~exception~to~this!}$
-      $\color{#B5B5B5}{Jokes~about~Wars:~this~depends,~please~do~not~joke~about~the~suffering~of~others/}$  $\color{#B5B5B5}{ specific~people~related~to~wars~towards~me~😓}$
+       $\color{#9C9C9C}{Ships:~please~do~not~approach~me~for~the~sake~of~a~ship~if~you~don't~know~me, }$ $\color{#797979}{~if~we~are~close/are~already~friends~i~can~freely~make~an~exception~to~this!}$
+      $\color{#575757}{Jokes~about~Wars:~this~depends,~please~do~not~joke~about~the~suffering~of~others/}$  $\color{#797979}{ specific~people~related~to~wars~towards~me~😓}$
     </th>
   </tr>
 </table>
-<a href="https://imgbb.com/"><img src="https://i.ibb.co/xdpfgFh/Untitled3526-20260607142756.png" alt="Untitled3526 20260607142756" border="0"></a>
-<a href="https://ibb.co/sphqfQz5"><img src="https://i.ibb.co/twSDGcFZ/Untitled3527-20260607143025.png" alt="Untitled3527-20260607143025" border="0"></a>
