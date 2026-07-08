@@ -4,10 +4,13 @@
 <table>
   <tr>
     <th>            
-      $\color{#B5B5B5}{Hihi~im~Kay~but~you~can~always~refer~to~me~by~my~skins~name,}$ $\color{#9C9C9C}{im~on~ponytown~for~long~periods~of~time~either~with~friends~or~offtab~alone }$ $\color{#797979}{~i~have~low~confidence~so~i~usually~don't~come~up~to~people~i~dont~know~unless~they~do, }$ $\color{#575757}{~i~appreciate~people~cuddling~with~me~whenever~I'm~alone,~feel~free~to~afk~with~me~as~if~I'm~at~home~im~usually~on~pt,}$ $\color{#797979}{~i~encourage~you~to~hang~out~with~me~if~your~offtab/doing~other~stuff!! }$ $\color{#9C9C9C}{~If~i~am~online,~feel~free~to~talk~to~me,~altough~i~might~not~be~able~to~keep~the~convo~going~for~long}$
+      $\color{#B5B5B5}{Hihi~im~Kay!!,}$ $\color{#9C9C9C}{im~on~ponytown~offtab~alot~[unless~with~friends] }$ $\color{#797979}{~i~have~low~confidence~and~im~shy~so~i~usually~don't~come~up~to~people, }$ $\color{#575757}{~i~appreciate~people~cuddling~with~me~whenever~I'm~alone,~feel~free~to~afk~with~me,}$ $\color{#797979}{~i~encourage~you~to~hang~out~with~me~or~even~bmf!! }$ $\color{#9C9C9C}{~If~i~am~online,~feel~free~to~interact~with~me,~altough~i~might~not~be~able~to~keep~a~convo~going~for~long~since~im~awkward..}$
     </th>
   </tr>
 </table>
+    
 <p align="center">
   <a href="https://imgbb.com/"><img src="https://i.ibb.co/j90FDjNQ/Tumblr-l-14902620343559.gif" alt="Tumblr l 14902620343559" border="0"></a>
-
+            
+      
+    
