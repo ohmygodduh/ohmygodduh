@@ -12,6 +12,11 @@
     
 <p align="center">
   <a href="https://imgbb.com/"><img src="https://i.ibb.co/j90FDjNQ/Tumblr-l-14902620343559.gif" alt="Tumblr l 14902620343559" border="0"></a>
+  <p align="center">
+  <a href="https://imgbb.com/"><img src="https://i.ibb.co/bj2jX40Z/Untitled82-20261007112713.png" alt="Untitled82 20261007112713" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/QjDFJK71/Untitled82-20261007112710.png" alt="Untitled82 20261007112710" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/XxMFkwVs/Untitled82-20261007112707.png" alt="Untitled82 20261007112707" border="0"></a>
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/nN805Zz9/Untitled82-20261007112702.png" alt="Untitled82 20261007112702" border="0"></a>
             
       
     
